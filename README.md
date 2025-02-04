@@ -11,4 +11,4 @@ Hayatımda kodun gücüne inanıyorum, çünkü her şeyin bir çözümü var.
 
 ## İletişim
 - X: [X Profil Linkiniz](https://x.com/vugarrsll)]
-- E-posta: [aynnoc134@gmai.com]
+- E-posta: [aynnoc134@gmail.com]
